@@ -1,7 +1,7 @@
 
 </p>
 <p align="center"> 
- <img src="https://komarev.com/ghpvc/?username=halovian&color=7b9e3c&style=for-the-badge&label=BEAUTIES+CAPTURED!&style=flat"> 
+ <img src="https://komarev.com/ghpvc/?username=halovian&color=#297c6b&style=for-the-badge&label=BEAUTIES+CAPTURED!&style=flat"> 
   </p>
 <p align="center"> 
 <a href="https://x.com/argentiratio/status/1860249213214597306"><img src=https://file.garden/ZXM10z_dI1vYUiwW/image_2024-12-18_094609284-ezgif.com-resize.png></a>
