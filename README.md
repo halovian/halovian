@@ -1,5 +1,9 @@
-i spam follow people! (^u^) its all manual<br>
-**block** to remove me from your follow list<br>
-for more about me, read my [sp](https://halovianicon.straw.page/) ᡣ𐭩
-<br><br>
-[helpourpeople.carrd.co](https://helpourpeople.carrd.co)⠀⠀[arab.org](https://arab.org)⠀⠀[boycottisrael.org](https://boycott-israel.org)
+<div align="center">
+  
+  <details>
+  <summary>(..◜ᴗ◝..)</summary>
+<br>
+  hai my name is koma<br>
+  she/her only - cisfem<br>
+  c*h enc, talk to me
+</details>
